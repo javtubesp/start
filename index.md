@@ -1,3 +1,4 @@
+<center>
 <b>目前可用网址<b/>
 <a href="https://orangeav.com" target="_blank">分站1</a>
 <a href="https://porn777.cc" target="_blank">分站2</a>
@@ -10,3 +11,4 @@
 <img src="https://exp-picture.cdn.bcebos.com/506d92f1d8a72633923a3b57c02c56ee7a7f4417.jpg">
 <img src="https://exp-picture.cdn.bcebos.com/3b8fb4d7726b0ce28d59c2bbef781423bfb9b617.jpg">
 <img src="https://exp-picture.cdn.bcebos.com/6ca98461862541933b5646b0df1bd10ff326ab17.jpg">
+</center>
