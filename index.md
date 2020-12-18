@@ -2,7 +2,6 @@
 <b>目前可用网址<b/>
 <a href="https://orangeav.com" target="_blank">分站1</a>
 <a href="https://porn777.cc" target="_blank">分站2</a>
-<a href="https://weicha.cc" target="_blank">分站3</a>
 <br>
 <br>
 <b>怎么把本页添加到书签<b/>
