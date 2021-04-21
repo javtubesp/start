@@ -1,6 +1,5 @@
 <b>请一定要收藏此页面 以免找不到回家的路<b/>
 <b>目前可用网址<b/>
-<a href="https://orangeav.com" target="_blank">分站1</a>
 <a href="https://porn777.cc" target="_blank">分站2</a>
 <br>
 <br>
