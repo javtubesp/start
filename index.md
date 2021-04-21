@@ -1,6 +1,7 @@
 <b>请一定要收藏此页面 以免找不到回家的路<b/>
 <b>目前可用网址<b/>
-<a href="https://porn777.cc" target="_blank">点我点我!!进入网站</a>
+<a href="https://vx5566.cc" target="_blank">点我点我!!进入网站1</a>
+<a href="https://lgclub.cc" target="_blank">点我点我!!进入网站2</a>
 <br>
 <br>
 <b>怎么把本页添加到书签<b/>
